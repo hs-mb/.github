@@ -1,1 +1,1 @@
-# Hackspace Bushaltestelle @ WQ Merseburg
+# Hackspace @ WQ Merseburg
